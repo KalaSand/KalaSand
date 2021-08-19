@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @KalaSand
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning coding
+- 💞️ I’m looking to collaborate on my startup
+- 📫 Just think about me and i will spawn at your home. haha
+-    i m not joking...........
